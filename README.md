@@ -1,0 +1,2 @@
+- 😉 Hi, I'm khue.
+- 😁 I love roaming around.
