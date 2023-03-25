@@ -1,2 +1,2 @@
-- 😉 Hi, I'm khue.
-- 😁 I love roaming around.
+- 😉 嗨，我叫赵奎，你也可以叫我大土。
+- 😁 我现在是
